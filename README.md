@@ -14,3 +14,10 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am a gamer
 
+---
+
+### My Youtube Channel
+
+Created a few short animated films in Maya in a short period of time
+
+[Latest Film](https://www.youtube.com/watch?v=rutSXsKazCA&t=7s)
