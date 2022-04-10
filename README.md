@@ -1,5 +1,5 @@
 ### Hi there 👋, I am Hrishik Arora:
-
+![GitHub followers](https://img.shields.io/github/followers/hrishikarora?style=social)
 <!--
 **hrishikarora/hrishikarora** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
