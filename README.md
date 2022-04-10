@@ -10,7 +10,7 @@
 - 👯 I’m looking to collaborate on Game Designing
 - 🤔 I’m looking for help with Virtual Reality
 - 💬 Ask me about Unity 3-D
-- 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/hrishikarora)
+- 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/hrishikarora),[Instagram](https://www.instagram.com/hrishik.arora/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am a gamer
 
