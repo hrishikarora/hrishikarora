@@ -27,9 +27,9 @@ Created a few short animated films in Maya in a short period of time
 ### Future Goals 
 Learn
 
--Virtual Reality
+- Virtual Reality
 
--Augmented reality
+- Augmented reality
 
 ---
 
